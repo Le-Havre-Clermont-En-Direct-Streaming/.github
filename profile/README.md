@@ -1,5 +1,9 @@
-<h1>!~[DIRECT-TV]Le Havre - Clermont En Direct Streaming Gratuit Tv 17 Mars 2024</h1>
 Clermont - Le Havre en direct dimanche 17 mars 2024, 15h00 Ligue 1 Uber Eats 2023-2024, 26e journée
+
+<strong>🔴EN DIRECT▶ [Clermont - Le Havre En Direct Streaming](https://sports2tv.live/frenchleague/)</strong>
+
+<strong>🔴EN DIRECT▶ [Clermont - Le Havre En Direct Streaming](https://sports2tv.live/frenchleague/)</strong>
+
 En face, une formation havraise qui vise une seconde victoire consécutive en Ligue 1, une première cette saison, après s'être relancé à domicile contre Toulouse (1-0). Un succès à Clermont, permettrait aux Normands de s'éloigner de la zone rouge.
 
 Bon dernier du Championnat, les Clermontois sont au pied du mur avec 17 petits points. La bande à Pascal Gastien doit impérativement l'emporter pour ne pas sombrer totalement dans les limbes du classement, leur dernier succès remontant au 14 janvier.
